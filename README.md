@@ -1,0 +1,1 @@
+# practic12.2-zadanie
